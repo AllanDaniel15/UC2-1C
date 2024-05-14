@@ -12,9 +12,14 @@
 #Allan Daniel Martins de Loiola
 
 Atividade 1: Trello link
--[ATIVIDADE FEITA EM GRUPO SWOT](https://trello.com/invite/b/GOPJrfkO/ATTI3cd42deadf09322bab0ba8b9ad975b8bBA8EB77F/analise-swot-amazon)
-  -[ATIVIDADE FEITA EM INDIVIDUA KANBAN](https://trello.com/invite/b/DWSK6XMf/ATTIdc180c25255a2549c00b5f227310cade1D71AEEE/projeto-pessoal)
-    -[ATIVIDADE FEITA EM GRUPO Gerenciamento de entrgras disciplinares](https://trello.com/b/I1S2d8iI/gerenciamento-de-entregas-disciplinares-1)
-      -[ATIVIDADE FEITA EM GRUPO linguagens](https://www.canva.com/design/DAGEjciwvGs/vSqc2OGltcH_2QQ1LCnF5w/edit?utm_content=DAGEjciwvGs&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
-      -[SIMULAÇÂO PROJETO INTEGRADOR](https://www.canva.com/design/DAGCfvKibA4/OlvxCvUgIoPQpSIN0uqHGQ/edit?utm_content=DAGCfvKibA4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
+  * [ATIVIDADE FEITA EM GRUPO SWOT](https://trello.com/invite/b/GOPJrfkO/ATTI3cd42deadf09322bab0ba8b9ad975b8bBA8EB77F/analise-swot-amazon)
+
+  * [ATIVIDADE FEITA EM INDIVIDUA KANBAN](https://trello.com/invite/b/DWSK6XMf/ATTIdc180c25255a2549c00b5f227310cade1D71AEEE/projeto-pessoal)
+  
+  * [ATIVIDADE FEITA EM GRUPO Gerenciamento de entrgras disciplinares](https://trello.com/b/I1S2d8iI/gerenciamento-de-entregas-disciplinares-1)
+    
+  * [ATIVIDADE FEITA EM GRUPO linguagens](https://www.canva.com/design/DAGEjciwvGs/vSqc2OGltcH_2QQ1LCnF5w/edit?utm_content=DAGEjciwvGs&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+      
+  * [SIMULAÇÂO PROJETO INTEGRADOR](https://www.canva.com/design/DAGCfvKibA4/OlvxCvUgIoPQpSIN0uqHGQ/edit?utm_content=DAGCfvKibA4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
       

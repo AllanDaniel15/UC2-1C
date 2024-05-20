@@ -23,5 +23,6 @@ Atividade 1: Trello link
       
   * [SIMULAÇÂO PROJETO INTEGRADOR](https://www.canva.com/design/DAGCfvKibA4/OlvxCvUgIoPQpSIN0uqHGQ/edit?utm_content=DAGCfvKibA4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
+* [miro individual](https://miro.com/welcomeonboard/WTlBNEY4V1llNWJDZXB4TkJzVDlmdDhmM2cwMjlBNER0WVVkZVVkdVR2U2l0R2lDYjlEWEpaSWJxVVpZbWJBd3wzNDU4NzY0NTgwNTA5MjEwOTQwfDI=?share_link_id=715257422011)
   * [Miro individual](https://miro.com/app/board/uXjVKHgVLHE=/?share_link_id=962365935238)
       

@@ -22,4 +22,6 @@ Atividade 1: Trello link
   * [ATIVIDADE FEITA EM GRUPO linguagens](https://www.canva.com/design/DAGEjciwvGs/vSqc2OGltcH_2QQ1LCnF5w/edit?utm_content=DAGEjciwvGs&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
       
   * [SIMULAÇÂO PROJETO INTEGRADOR](https://www.canva.com/design/DAGCfvKibA4/OlvxCvUgIoPQpSIN0uqHGQ/edit?utm_content=DAGCfvKibA4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
+  * [Miro individual](https://miro.com/app/board/uXjVKHgVLHE=/?share_link_id=962365935238)
       

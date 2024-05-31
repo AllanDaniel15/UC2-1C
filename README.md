@@ -26,3 +26,5 @@ Atividade 1: Trello link
 * [miro individual](https://miro.com/welcomeonboard/WTlBNEY4V1llNWJDZXB4TkJzVDlmdDhmM2cwMjlBNER0WVVkZVVkdVR2U2l0R2lDYjlEWEpaSWJxVVpZbWJBd3wzNDU4NzY0NTgwNTA5MjEwOTQwfDI=?share_link_id=715257422011)
  
 * [Docs EMPREGO DOS SONHOS](https://docs.google.com/document/d/1NQuo07bOv4r1kucmR4dLd76vVr8l1oKC0zcTQhGLuFI/edit?usp=sharing)
+
+*[google planilhas](https://docs.google.com/spreadsheets/d/1ewqQmUoS09z-dSF6Pn1uhlkEblI-ztx5bs8cDV_n3d8/edit#gid=1115838130)
